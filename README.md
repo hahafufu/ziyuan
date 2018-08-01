@@ -4,7 +4,7 @@
 #### [抖音最新最全33部不雅视频资源 点击查看](https://pan.baidu.com/s/1p8g5RyZML1jITiIvD4nNtA)
 #### [抖音最新33部不雅视频资源购买 点击购买](http://957ka.com/details/EC95AEDEAF965108)
 #### .
-#### [1、常规（巨乳 嫩妹等）预览图 点击查看](http://t.cn/RexmzmT)
+#### [1、常规（巨乳 嫩妹等）预览图 点击查看](http://t.cn/Re8mvov)
 #### [2、明星（迪丽 杨幂等）分类预览图 点击查看](http://t.cn/Rexm4R2)
 #### [3、网红（PR社 小鸟酱等）资源预览图 点击查看](http://t.cn/RexmcYh)
 
