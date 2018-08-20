@@ -2,7 +2,7 @@
 
 #### 最新推荐（注：资源为查看及下载，购买的是解压密码。）
 #### [抖音最新最全33部不雅视频资源 点击查看](https://pan.baidu.com/s/1p8g5RyZML1jITiIvD4nNtA)
-#### [抖音最新33部不雅视频资源购买 点击购买](http://957ka.com/details/EC95AEDEAF965108)
+#### [抖音最新33部不雅视频资源购买 点击购买](https://www.fakajun.com/space/1776898375.html)
 #### .
 #### [1、常规（巨乳 嫩妹等）预览图 点击查看](http://t.cn/Re8mvov)
 #### [2、明星（迪丽 杨幂等）分类预览图 点击查看](http://t.cn/Rexm4R2)
@@ -12,11 +12,9 @@
 #### .
 ###  自助购买：
 
-#### [1.1 常规分类高质量资源 点击查看](https://pan.baidu.com/s/15_HMDUEEpccfy6ZqWRr7yQ)
-#### [1.2 常规高质量资源购买 点击购买](http://957ka.com/liebiao/E33E00E04C717611)
-#### [2.1 明星分类高质量资源 点击查看](https://pan.baidu.com/s/1cDHoipm4pRmLZMq0ECiMdg)
-#### [2.2 明星高质量资源购买 点击购买](http://957ka.com/liebiao/8F670A701724655B)
-#### [3.1 网红系列高质量资源 点击查看](https://pan.baidu.com/s/157AHLmwPoqL4RHI_o57Gvg)
-#### [3.2 网红高质量资源购买 点击购买](http://957ka.com/liebiao/03706F9E028AA79C)
+#### [1 常规分类高质量资源 点击查看](https://pan.baidu.com/s/15_HMDUEEpccfy6ZqWRr7yQ)
+#### [2 明星分类高质量资源 点击查看](https://pan.baidu.com/s/1cDHoipm4pRmLZMq0ECiMdg)
+#### [3 网红系列高质量资源 点击查看](https://pan.baidu.com/s/157AHLmwPoqL4RHI_o57Gvg)
+#### [全部资源购买 点击购买](https://www.fakajun.com/space/1776898375.html)
 
 #### 若不会自助购买，或付款不成功，请直接在奥豆咨询购买
