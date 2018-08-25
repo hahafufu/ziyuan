@@ -10,7 +10,7 @@
 
 #### 》购买高端网址请在奥豆直接咨询！《
 #### .
-###  自助购买：
+###  自助购买： [全部资源购买 点击购买](https://www.fakajun.com/space/1776898375.html)
 
 #### [1 常规分类高质量资源 点击查看](https://pan.baidu.com/s/15_HMDUEEpccfy6ZqWRr7yQ)
 #### [2 明星分类高质量资源 点击查看](https://pan.baidu.com/s/1cDHoipm4pRmLZMq0ECiMdg)
